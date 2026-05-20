@@ -14,6 +14,8 @@ To add to the list of quotes: EDIT
 
 ## The Quotes
 
+
+
 > As we work to create light for others, we naturally light our own way.
 
 Mary Anne Radmacher
